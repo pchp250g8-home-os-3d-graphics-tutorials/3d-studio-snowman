@@ -1,1 +1,1 @@
-Capsule. 3DCreator Tutorials. 3D Graphics. 3D Models.
+SnowMan. 3DStudio Tutorials. 3D Graphics. 3D Models.
